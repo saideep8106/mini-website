@@ -39,5 +39,3 @@ It includes three fully structured pages:
 **siripuramsaideep@gmail.com**
 UI/UX Developer at Resonira Technologies  
 
-**siripuramsaideep@gmail.com**
-UI/UX Developer at Resonira Technologies  
